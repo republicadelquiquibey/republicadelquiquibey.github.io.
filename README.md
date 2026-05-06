@@ -1,1 +1,2 @@
-REPUBLICA DEL QUIQUIBEY  "de las cloacas de esta sociedad....al encuentro con la libertad
+ ____________________REPUBLICA DEL QUIQUIBEY____________________ 
+"de las cloacas de esta sociedad....al encuentro con la libertad¨
